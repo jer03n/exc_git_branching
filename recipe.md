@@ -3,19 +3,6 @@ A super tasty crowd pleasing treat of a sandwich, here we compress mushrooms to 
 15 minutes
 Serves 2
 Watch Video
-INGREDIENTS
- 
-1 large baguette or bread roll
-2 medium onions
-2 tbsp oil
-1 tbsp balsamic vinegar
-3 tbsp maple syrup
-200 g oyster mushrooms or mushrooms of choice
-2 tbsp tamari/ soy sauce
-1 tsp garlic powder
-2 large tomato
-A few leaves of lettuce
-3 tbsp vegan mayo
 
 INSTRUCTIONS
  
